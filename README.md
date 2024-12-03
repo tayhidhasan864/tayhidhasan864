@@ -1,11 +1,11 @@
 - 👋 Hi, I’m Tayhid hasan
 - 👀 I’m interested in online research. 
-- 🌱 I’m currently learning digital marketing, Youtubing, basic hacking. 
+- 🌱 I’m currently learning digital marketing, Youtubing, basic hacking, networking and many more. 
 - 💞️ I’m always free.
 - 📫 if you want to reach me, 
-     Facebook: @tayhidhasan864
-     Twitter:  @tayhidhasan864
-     Instagram: @tayhidhasan864
+     Facebook: @tayhid.official
+     Twitter:  @tayhid_official
+     Instagram: @tayhid.official
      Skype  : live:.cid.b6cc2129f15f34ea
     YouTube:  YouTube.com/thguru
 
